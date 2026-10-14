@@ -34,6 +34,10 @@ ${\color{violet}loving}$
 
 
 
+
+
+
+
 <p align="center">
   <img src="https://i.pinimg.com/736x/86/cf/4d/86cf4df235985fffd46ad784e20942fd.jpg" alt="laika" width="350">
 </p>
@@ -41,8 +45,28 @@ ${\color{violet}loving}$
 
 ${\color{white} dni\ if\ over\ 21\ ok??\ }$
 
+
 ${\color{lightblue} iwc\ if\ minty\ or\ wagyu\ yume\ }$
+
+
 
 ${\color{blue} iwec\ if\ minty/wagyu\ kin\ ok??\ }$
 
+
 ${\color{darkblue} Extremedni\ if\ citrus\ yume\ or\ kin\ }$
+
+
+
+
+
+...............................................................................................................................................................................................................................
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/fa/73/f2/fa73f2571c918aa64792f7c37d35560f.jpg" alt="laika" width="350">
+</p>
+
+${\color{white} int\ if\ under\ 21\ ok??\ }$
+
+${\color{lightblue} int\ if\ objectified\ fan\ or\ kin/yume!\ }$
+
+${\color{blue} int\ if\ osc\ fan\ }$
